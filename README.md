@@ -1,4 +1,4 @@
-Heeeey,
+
 
 You can discover the solar-system. Enjoy it.
 
